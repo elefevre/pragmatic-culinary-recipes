@@ -14,7 +14,7 @@ Steps:
 
 1. pour cold milk into one of the mugs, up to 3/4th capacity
 1. heat in your microwave oven at maximum power for 2 mins (at 900W) -- it will boil, but not spill over
-1. in the meantime, put two generous spoons of your chocolate power in the other mug
+1. in the meantime, put two generous spoons of your chocolate powder in the other mug
 1. add a little cold milk and stir vigorously -- it should become barely liquid (if in doubt, add a little more cold milk)
 1. pour the hot milk in the mug containing the hot chocolate; no need to stir
 
