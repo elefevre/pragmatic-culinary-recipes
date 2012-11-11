@@ -20,4 +20,4 @@ Steps:
 
 Using mugs to prepare hot chocolate makes it a lot less messy compared to saucepans where the milk always seem to stick no matter how careful I am.
 Mixing cold chocolate with hot milk tend to produce pleasant-looking swirls in the resulting drink.
-Finally, mixing the power with a little milk makes it a lot easier to mix with the rest of the milk.
+Finally, mixing the powder with a little milk makes it a lot easier to mix with the rest of the milk.
